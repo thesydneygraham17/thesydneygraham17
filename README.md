@@ -7,7 +7,7 @@ Currently learning: coding
 
 Ask me about: My digital art and Global Game Jam competition!
 
-How to reach me: I'm typically available at thesydneygraham17@gmail.com. I'll typically get back to you in about 1-2 days.
+How to reach me: I'm available at thesydneygraham17@gmail.com. I'll typically get back to you in about 1-2 days.
 
 Pronouns: she/her/hers
 
